@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on bank AV Villas Colombia<br>👯 I’m looking to collaborate on free lancer or other projects<br>🤝 I’m looking for help with partners and engineer friends<br>🌱 I’m currently learning aftificial intelligence<br>💬 Ask me about anything 
+👯 I’m looking to collaborate on free lancer or other projects<br>🤝 I’m looking for help with partners and engineer friends<br>🌱 I’m currently learning aftificial intelligence<br>💬 Ask me about anything 
 
 
 ## 🌐 Socials:
